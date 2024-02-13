@@ -20,3 +20,6 @@
 
 
 ![cyclops_pin_up_by_docolomansky_dapw6do-fullview](https://github.com/DTECH-Lab/Instructions/assets/38139157/6d6d3190-941b-4040-969c-63d8a9cd314e)
+
+
+![Cyclops-removebg-preview](https://github.com/DTECH-Lab/Instructions/assets/38139157/33b3e280-14b7-46d0-9ea5-2e1cfd94d021)
