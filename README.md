@@ -19,3 +19,4 @@
 
 
 
+![cyclops_pin_up_by_docolomansky_dapw6do-fullview](https://github.com/DTECH-Lab/Instructions/assets/38139157/6d6d3190-941b-4040-969c-63d8a9cd314e)
