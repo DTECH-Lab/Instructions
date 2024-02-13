@@ -18,4 +18,4 @@
 
 
 
-![home-assistant-logo-4122585820](https://github.com/DTECH-Lab/Instructions/assets/38139157/962e4319-1426-45ec-9040-2b7b8dd8926b)
+
