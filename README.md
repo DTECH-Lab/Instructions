@@ -12,3 +12,6 @@
 
 
 ![wolf](https://github.com/DTECH-Lab/Instructions/assets/38139157/047e9705-ed95-4baf-b4be-40a5c630dbda)
+
+
+![resiziwolf (1)](https://github.com/DTECH-Lab/Instructions/assets/38139157/eeaee24f-d316-4838-b7cf-debe15e7b60d)
