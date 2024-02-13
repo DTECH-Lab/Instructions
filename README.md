@@ -15,3 +15,7 @@
 
 
 ![resiziwolf (1)](https://github.com/DTECH-Lab/Instructions/assets/38139157/eeaee24f-d316-4838-b7cf-debe15e7b60d)
+
+
+
+![home-assistant-logo-4122585820](https://github.com/DTECH-Lab/Instructions/assets/38139157/962e4319-1426-45ec-9040-2b7b8dd8926b)
